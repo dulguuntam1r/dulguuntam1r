@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @dulguuntam1r
+- 
+- 👀 I’m interested in becoming software developer
+- 
+- 🌱 I’m currently learning python
+- 
+- 💞️ I’m looking to collaborate on any project
+- 
+- 📫 Reach me through linkedin https://www.linkedin.com/in/dulguunt4mir/
