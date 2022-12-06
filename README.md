@@ -6,4 +6,4 @@
 - 
 - 💞️ I’m looking to collaborate on any project
 - 
-- 📫 Reach me through linkedin https://www.linkedin.com/in/dulguunt4mir/
+- 📫 Reach me through https://www.linkedin.com/in/dulguunt4mir/
